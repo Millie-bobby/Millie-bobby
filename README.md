@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Millie-bobby
 - 👀 I’m interested in film 🎥
 - 🌱 I’m currently learning about me
-- 💞️ I’m looking to collaborate on [telegram](t.me/millie_rmvzz)
+- 💞️ I’m looking to collaborate on [telegram](https://t.me/millie_rmvzz)
 - 📫 How to reach me Millie-boby@outlook.com
 
 <!---
